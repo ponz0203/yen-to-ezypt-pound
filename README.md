@@ -1,0 +1,1 @@
+# yen-to-ezypt-pound
